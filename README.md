@@ -1,0 +1,1 @@
+This is me stuck in directory!
